@@ -1,0 +1,5 @@
+- 👋 Hi, I'm @tlutufullin
+- 👀 I'm interested in machine learning
+- 🌱 I am currently studying in the 4th year in the direction of information security
+- 💞 ️ I am looking for opportunities for cooperation ...
+- 📫 How to contact me : https://t.me/timuurka
