@@ -1,4 +1,4 @@
-- 👋 Hi, I'm @tlutufullin
+- 👋 Hi, I'm @tlutfullin
 - 👀 I'm interested in machine learning
 - 🌱 I am currently studying in the 4th year in the direction of information security
 - 💞 ️ I am looking for opportunities for cooperation ...
